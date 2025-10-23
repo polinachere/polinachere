@@ -1,6 +1,6 @@
 # Привет, я Полина👋
 
-*through thorns to the stars*
+>*through thorns to the stars*
 
 ## Кто я?
 - студент РАНХиГС, 2 курс
