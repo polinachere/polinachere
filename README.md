@@ -10,8 +10,8 @@
 - стресоустойчивость
 
 ## Связаться со мной
-- email: [cherpolinaa@mail.ru]
-- TG: [@polinaeter]
+- email: cherpolinaa@mail.ru
+- TG: [https://t.me/polinaeter]
 
 ## Интересные факты
 - Призер всероссийской олимпиады школьников “Высшая проба”
