@@ -17,7 +17,9 @@
 - стресоустойчивость
 - умение руководить
 - тайм-менеджмент
-
+- испанский A1
+- обучаемость
+- 
 ## Связаться со мной
 - *email*: cherpolinaa@mail.ru
 - *TG*: [https://t.me/polinaeter]
@@ -31,4 +33,6 @@
 
 ## Резюме 
 [https://disk.yandex.ru/i/1KvAH9AVWLgJBA]
+
+![Изображение](https://i.pinimg.com/736x/66/5c/5b/665c5bae20829167ca7c18c6ac6ffab9.jpg "Это я")
 
