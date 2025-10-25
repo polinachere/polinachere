@@ -34,5 +34,5 @@
 ## Резюме 
 [https://disk.yandex.ru/i/1KvAH9AVWLgJBA]
 
-![Изображение](https://i.pinimg.com/736x/66/5c/5b/665c5bae20829167ca7c18c6ac6ffab9.jpg "Это я")
+![Изображение](https://i.pinimg.com/736x/66/5c/5b/665c5bae20829167ca7c18c6ac6ffab9.jpg "Это я" width="200")
 
