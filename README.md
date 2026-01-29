@@ -32,7 +32,7 @@
 - Неоднократный посетитель бизнес лекториев. Из последних крупных мероприятий 
 
 ## Резюме 
-[https://disk.yandex.ru/i/1KvAH9AVWLgJBA]
+[https://disk.yandex.ru/i/-ImEpIGrKw03Nw]
 
 ![Изображение](https://i.pinimg.com/736x/66/5c/5b/665c5bae20829167ca7c18c6ac6ffab9.jpg "Это я")
 
